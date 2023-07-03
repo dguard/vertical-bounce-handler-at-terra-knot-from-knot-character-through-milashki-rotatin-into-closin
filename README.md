@@ -2,6 +2,16 @@
 
 * \
 
+* И нашли способ фиксить собак \ одна собака начинает \ подхватывают другие и начинается флуд \ фиксится постукиванием into bottom через сухой ствол чуть более wider по di чем ствол from osi\na \ 
+
+* Заплывы \ после прохлапывания нужно восстанавливать heart мышцу \
+
+* Предварительно axe splita\r делал прохлапывание \
+
+* Сегодня нашли вот этого чела \
+
+* \
+
 * В выбранной сборке rotate сделан через bottom line, profile line \ through draft
 
 * From release knot-character-viewport rotate сделан через knotStartinFrom \ knotClosin \ distance between two knot\ through function\l \ through computd from draft \ paper A4 \ paper A3
