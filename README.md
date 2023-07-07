@@ -1,5 +1,24 @@
 ### vertical-bounce-handler-at-terra-knot-from-knot-character-through-milashki
 
+
+* \
+
+* Академик Журавлёв вовремя сделал сейв \
+
+* И вот видим желание изучить катакану и хирагану \ 
+
+* Передаем поздравление Ильюше Крохе \
+
+* pencil-from-knot remind\ по стеку работают "преимущественно" bornd 10 \ solve через vertical-bounce-handler
+
+* Хочет взять \ Леонид Тимошенко \ и сделать floor в 9+1
+
+* Не забываем \ Николай Угодник \
+
+* Делаем заплывы \ pencil-from-knot remind\ typizati\on
+
+* Так ну что тут \
+
 * \
 
 * Чтобы разом на все кнопки нажать нельзя было
